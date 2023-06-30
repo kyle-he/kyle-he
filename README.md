@@ -1,3 +1,3 @@
 📫 How to reach me:
- - Email: keelayhe@gmail.com
- - Discord: keelay#9075
+ - Email: panyanhe99 [at] gmail.com
+ - Email: kphe [at] usc.edu
